@@ -12,7 +12,7 @@
 
 🔭 Trying Solidity | Ethereum
 
-🌱 Currently - travelling and sailing
+🌱 Currently - Using arch by the way
 
 👯 I’m looking to collaborate on **Deep Learning Projects**
 
