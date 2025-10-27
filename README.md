@@ -12,13 +12,13 @@
 
 🔭 Trying Solidity | Ethereum
 
-🌱 Currently - Using arch by the way
+🌱 Currently - trying
 
 👯 I’m looking to collaborate on **Deep Learning Projects**
 
 💬 Ask me about - Anything! I might be able to help.
 
-🤡 Fun fact - No one missed their German Exam, except- <br>
+🤡 Fun fact - johnys gotta do what johnys gotta do~ <br>
 
 ⚠️ "Anomalies provide the impetus for paradigm change within a field of study."
 
